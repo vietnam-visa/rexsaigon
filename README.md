@@ -1,0 +1,2 @@
+# rexsaigon
+<a href=http://www.hotels-in-vietnam.com/asia/vietnam/ho_chi_minh_saigon_hotels/rex_hotel.html>Rex Hotel Saigon</a> is ideally located in the center heart of Ho Chi Minh city, next door to the People Committee House, within steps of the famous Ben Thanh market and historical Opera House. Being conscious of the environment aspects, Rex Hotel Saigon not only aims to provide quality services for its guest, but is also committed to taking appropriate measures for pollution prevention and resources conservation.
